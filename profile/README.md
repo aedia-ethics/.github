@@ -1,4 +1,4 @@
-# Sobre Nosotros
+# Sobre Nosotros. [Documento completo.](https://aedia-ethics.github.io/aedia-ethics/documentos/sobre_nosotros.pdf)
 
 ## Quiénes somos
 
